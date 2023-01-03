@@ -14,5 +14,5 @@ move the earth.”
 —Archimedes
 
 
-I want to do great things, explore as much as I can and also I have a dream to travel to the every coutries of the world
+I want to do great things, explore as much as I can and also I have a dream to travel to every country in the world
 ---
