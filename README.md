@@ -1,6 +1,6 @@
 # Hi there :wave:, I am Ismum Hossain
 
-I am a smart contract/blockchain developer.
+I am a software/blockchain developer.
 ---
 
 I love to read books :book: and I live to learn.
